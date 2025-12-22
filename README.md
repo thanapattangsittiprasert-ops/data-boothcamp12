@@ -15,4 +15,4 @@
 * Notion: https://
 
 ## Contract Me
-thanapat.tangittiprasert@gmail.com
+Email: thanapat.tangittiprasert@gmail.com
